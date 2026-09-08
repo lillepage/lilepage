@@ -1,5 +1,5 @@
 # About me
-### I'm Lil/Lille, a very tall girl named small 🧍‍♀️
+### I'm Lille, a very tall girl named small 🧍‍♀️
 Currently relearning all my coding skills and trying my best at everything else. 
 
 <!--
